@@ -14,3 +14,5 @@ Daniel Brühl ist ein Schauspieler, der sich in den letzten 15 Jahren im deutsch
 >Ein Tag in Barcelona
 
 >Tapas - Die spanische Küche der Bar Raval
+
+<img src="https://bilder.buecher.de/produkte/58/58077/58077243z.jpg"/>
