@@ -12,4 +12,5 @@ Daniel Brühl ist ein Schauspieler, der sich in den letzten 15 Jahren im deutsch
 
 ## Bücher von Daniel Brühl:
 >Ein Tag in Barcelona
+
 >Tapas - Die spanische Küche der Bar Raval
