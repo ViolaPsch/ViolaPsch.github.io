@@ -1,5 +1,21 @@
 # Kulinarika
 
+## Veganer "Parmesan"
+### Zutaten
+* Sonnenblumenkerne
+* Cashew-Kerne
+* Hefeflocken
+* Bockhornkleesamen
+* Brühpulver
+* Kurkuma
+* Zwiebelpulver/Zwiebelsalz
+* Semmelbrösel
+
+### Zubereitung
+Alle Zutaten im Mixer zerkleinern.
+
+Passt gut zu Pasta oder mit Margarine gemischt auf's Brot.
+
 ## Tofu Spieße Marrakesch
 ### Zutaten für 4 Personen
 * 175 g Berief Bio Tofu Geräuchert
