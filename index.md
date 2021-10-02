@@ -1,5 +1,10 @@
 # Kulinarika
 
+## Protein-Schoko-Porridge
+### Zutaten
+* Haferflocken
+
+
 ## Veganer "Parmesan"
 ### Zutaten
 * Sonnenblumenkerne
