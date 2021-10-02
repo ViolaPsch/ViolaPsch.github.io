@@ -1,9 +1,25 @@
 # Kulinarika
 
 ## Protein-Schoko-Porridge
-### Zutaten
-* Haferflocken
+vegan, glutenfrei, eiweißreich, ohne Zuckerzusatz
 
+### Zutaten
+* 1kg Haferflocken
+* 500g Soja-Flocken (z. B. von Alnatura)
+* 250g entsteinte Datteln oder Dattelsüße (in Pulverform von <a href="https://www.rapunzel.de/bio-produkt-dattelsuesse-hand-in-hand--1400190.html">Rapunzel</a>)
+* 100g Maulbeeren (z. B. von <a href="https://www.korodrogerie.de/bio-maulbeeren-weiss-1-kg">KoRo</a>)
+* 100g (oder mehr nach Belieben) Kakao
+* 250g Soja-Crispies von <a href="https://www.korodrogerie.de/soja-protein-crispies-77-mit-kakao-1-kg">KoRo</a>
+* 100g (oder mehr nach Belieben) Cashewkerne, Mandeln oder andere Nüsse
+* 250g Buchweizenflocken oder gepuffter Buchweizen (z. B. von <a href="https://www.korodrogerie.de/bio-buchweizen-gepufft-350-g">KoRo</a>)
+* 100g Kakao-Nibs
+* mehrere EL Zimt
+* eine Prise Salz
+* optional Maca-Pulver
+
+### Zubereitung
+1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Wenn Datteln verwendet werden, diese portionsweise hinzugeben, sobald Hafer- und Sojaflocken und gemahlen sind. Am besten
+2. 
 
 ## Veganer "Parmesan"
 ### Zutaten
