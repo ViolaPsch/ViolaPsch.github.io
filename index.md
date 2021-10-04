@@ -18,7 +18,7 @@ vegan, glutenfrei, eiweißreich, ohne Zuckerzusatz
 * optional Maca-Pulver
 
 ### Zubereitung
-1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Wenn Datteln verwendet werden, diese portionsweise hinzugeben, sobald Hafer- und Sojaflocken und gemahlen sind. Am besten
+1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Wenn Datteln verwendet werden, diese portionsweise hinzugeben, sobald Hafer- und Sojaflocken und gemahlen sind. Am besten etappenweise damit keine Klümpchen entstehen ...
 2. 
 
 ## Veganer "Parmesan"
