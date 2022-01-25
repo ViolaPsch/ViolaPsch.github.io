@@ -6,7 +6,7 @@ vegan, glutenfrei, eiweißreich, ohne Zuckerzusatz
 ### Zutaten
 * 1kg Haferflocken
 * 500g Soja-Flocken (z. B. von Alnatura)
-* 250g entsteinte Datteln oder Dattelsüße (in Pulverform von <a href="https://www.rapunzel.de/bio-produkt-dattelsuesse-hand-in-hand--1400190.html">Rapunzel</a>)
+* 250g entsteinte Datteln, Dattelpaste oder Dattelsüße (in Pulverform von <a href="https://www.rapunzel.de/bio-produkt-dattelsuesse-hand-in-hand--1400190.html">Rapunzel</a>)
 * 100g Maulbeeren (z. B. von <a href="https://www.korodrogerie.de/bio-maulbeeren-weiss-1-kg">KoRo</a>)
 * 100g (oder mehr nach Belieben) Kakao
 * 250g Soja-Crispies von <a href="https://www.korodrogerie.de/soja-protein-crispies-77-mit-kakao-1-kg">KoRo</a>
@@ -18,8 +18,9 @@ vegan, glutenfrei, eiweißreich, ohne Zuckerzusatz
 * optional Maca-Pulver
 
 ### Zubereitung
-1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Datteln portionsweise hinzugeben, sobald Hafer- und Sojaflocken und gemahlen sind. Am besten etappenweise damit keine Klümpchen entstehen ...
-2. 
+1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Datteln portionsweise hinzugeben, sobald Hafer- und Sojaflocken und gemahlen sind. Am besten etappenweise, damit keine Klümpchen entstehen.
+2. In einem großen Gefäß (Schüssel oder Topf) gut mit den restlichen Zutaten vermischen.
+3. In Gläser oder Dosen füllen.
 
 ## Veganer "Parmesan"
 ### Zutaten
