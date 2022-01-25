@@ -18,7 +18,7 @@ vegan, glutenfrei, eiweißreich, ohne Zuckerzusatz
 * optional Maca-Pulver
 
 ### Zubereitung
-1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Datteln portionsweise hinzugeben, sobald Hafer- und Sojaflocken und gemahlen sind. Am besten etappenweise, damit keine Klümpchen entstehen.
+1. In einem Hochleistungsmixer in mehreren Durchgängen Haferflocken und Sojaflocken fein mahlen. Datteln portionsweise hinzugeben, sobald Hafer- und Sojaflocken gemahlen sind (am besten etappenweise, damit keine Klümpchen entstehen).
 2. In einem großen Gefäß (Schüssel oder Topf) gut mit den restlichen Zutaten vermischen.
 3. In Gläser oder Dosen füllen.
 
